@@ -6,4 +6,6 @@ Saya menghadiri rapat kepanitiaan MASFAK 2024 pertama setelah sebelumnya saya me
 ## 27 September 2024  
 Hari kedua menghadiri rapat kepanitiaan MASFAK 2024. Ada banyak perspektif dan pengalaman berbeda dari kepanitian lainnya yang pernah saya ikuti.  
 ## 28 September 2024  
-Di hari ini rapat kepanitiaan MASFAK 2024 yang awalnya direncanakan agar di gelar seperti biasa di kelas, dialihkan menjadi online via google meet. Alasannya karena terjadi bentrok tempat dengan kepanitian MASTAKA.
+Di hari ini rapat kepanitiaan MASFAK 2024 yang awalnya direncanakan agar di gelar seperti biasa di kelas, dialihkan menjadi online via google meet. Alasannya karena terjadi bentrok tempat dengan kepanitian MASTAKA.  
+## 1 Oktober 2024  
+Hari ini H-1 acara MASFAK SAINTEK 2024, namun pikiran saya terbagi antara kepanitiaan ini dan juga program MSIB Bangkit yang saya ikuti.
